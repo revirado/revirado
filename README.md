@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @revirado
-- 👀 I’m interested in ...
+- 👀 I’m interested in personal development
 - 🌱 I’m currently learning to dance
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me? reach the sky first.
